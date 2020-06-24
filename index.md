@@ -10,3 +10,5 @@ Iroh, auch bekannt als General Iroh oder als „Drache des Westens“, ist ein p
 
 
 >In der schwersten Zeit ist Hoffnung etwas, was du dir selber gibst und das ist ein Zeichen von innerer Stärke.
+
+<img src="https://i.imgur.com/xHGedJd.jpg"/>
