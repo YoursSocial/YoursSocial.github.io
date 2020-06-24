@@ -7,3 +7,6 @@ Iroh, auch bekannt als General Iroh oder als „Drache des Westens“, ist ein p
 * kann Blitze umleiten
 * spielt gerne Pai Sho
 * Besitzer des Teeladen "Jasmindrache"
+
+
+>In der schwersten Zeit ist Hoffnung etwas, was du dir selber gibst und das ist ein Zeichen von innerer Stärke.
